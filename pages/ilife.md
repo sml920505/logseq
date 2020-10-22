@@ -3,7 +3,6 @@ title: ilife
 ---
 
 ## 5年计划
-### ![](http://roam.startupabc.cn/20200521034954.png)
 ### 子女家庭关系
 #### 结婚
 
